@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for macOS filter with DaVinci Resolve for macOS professional Filter: AI-upscaling & voice-enhancement. Featuring AI-upscaling and
 
 
 
